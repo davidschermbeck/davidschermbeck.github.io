@@ -1,1 +1,0 @@
-# davidschermbeck.github.io
